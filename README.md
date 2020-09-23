@@ -1,1 +1,0 @@
-# LabGeo2yosrk
